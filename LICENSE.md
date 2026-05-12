@@ -1,4 +1,4 @@
-#  
+#  blue lock rivals Scripts stealth is the best blue lock rivals Script, featuring anti-ban and infinite resources. Safe and powerful for all your needs.
 
 
 
